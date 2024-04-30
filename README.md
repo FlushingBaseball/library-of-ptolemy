@@ -13,3 +13,5 @@ Map out all the events and story lines and provide affiliate links to all the pl
 Gothic for the imperium 
 purple etc for fulgirm / slannesh etc
 chapter colors
+
+## A better black library
