@@ -1,3 +1,7 @@
+## Stack ?
+React, Spring and idk Next JS?
+
+
 ## Overall timeline (defaults from death of the emperor onwards)
 
 
