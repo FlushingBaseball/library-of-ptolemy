@@ -19,3 +19,8 @@ purple etc for fulgirm / slannesh etc
 chapter colors
 
 ## A better black library
+
+
+## Author profiles and ratings
+
+## GW staff and ratings 
