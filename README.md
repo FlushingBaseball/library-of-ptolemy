@@ -1,3 +1,10 @@
+## overall timeline of series with books 
+
+Opening of great rift Hollow Mountain.
+
+Return of G man etc
+
+
 ## Stack ?
 React, Spring and idk Next JS?
 
