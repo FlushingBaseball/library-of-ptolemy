@@ -1,6 +1,10 @@
 ## books
 besides books and timeline art? Models?
 
+## Philsophy
+There's a place in between a wiki and a directory that would be useful to fans. 
+
+
 ## try and use tailwinds
 
 
