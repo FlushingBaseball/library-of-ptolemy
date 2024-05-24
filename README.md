@@ -1,3 +1,10 @@
+## Buy, Sell, Trade Models??? 
+Post pictures of your models etc?? 
+
+
+
+
+
 ## books
 besides books and timeline art? Models?
 
