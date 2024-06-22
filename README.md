@@ -2,11 +2,21 @@
 1. Ghazghkull Thraka: Prophet of the Waaagh!
 Book by Nate Crowle
 
+Genefather by Guy Haley
+Dark Imperium by Guy Haley
+Belisarius Cawl: The Great Work by Guy Haley
 
+## Blood Angels
+The Devastation of Baal by Guy Haley
+Darkness in the Blood by Guy Haley
 
-Vaults of Terra: The Hollow Mountain
+Vaults of Terra
 
+The Carrion Throne
 
+The Hollow Mountain
+
+The Dark City
 
 
 
