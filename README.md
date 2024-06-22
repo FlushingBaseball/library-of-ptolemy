@@ -1,3 +1,15 @@
+
+1. Ghazghkull Thraka: Prophet of the Waaagh!
+Book by Nate Crowle
+
+
+
+Vaults of Terra: The Hollow Mountain
+
+
+
+
+
 1. Start front end for book repos
 
 
