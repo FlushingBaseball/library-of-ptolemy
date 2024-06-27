@@ -21,8 +21,13 @@ Dark Imperium by Guy Haley (#1 in series) (Two versions, the original and a time
 Belisarius Cawl: The Great Work by Guy Haley
 
 ## Blood Angels
-Dante by Guy Haley (Blood Angels) "Not Era Indomitus per say but one of the best 40k books imo)
-The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1) "the prep and the war, mid ending, not very good, lots of lore"
+Dante by Guy Haley
+"Not Era Indomitus per say but one of the best modern 40k books." 
+
+
+
+The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1)
+"Date calls out to all the sons of Sanguinius to make a stand against the Tyriands on their genesire's homeworld. More of this books is prep and then some will be comfortable with. The actual engagment is profound lore wise but it doesn't stand and raise to the standard you would expect. There's alot of battles in 40k and this one wasn't written very well. The ending isn't great either but there's lots of lore the final few chapters"
 
 
 Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, primarus surgery etc, the curse, very meta book"
