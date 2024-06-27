@@ -23,7 +23,14 @@ Belisarius Cawl: The Great Work by Guy Haley
 ## Blood Angels
 Dante by Guy Haley (Blood Angels) "Not Era Indomitus per say but one of the best 40k books imo)
 The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1) "the prep and the war, mid ending, not very good, lots of lore"
+
+
 Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, primarus surgery etc, the curse, very meta book"
+
+
+Astorath Angel of Mercy by Guy Haley
+"The opening act is slow and middling but the second act is fantastic. This novella shines with brilliant side characters, intresting enemies and a great setting.
+I
 
 ## Dark Angels (The second primarch returns)
 The Lion: Son Of The Forest  by MIke Brooks
