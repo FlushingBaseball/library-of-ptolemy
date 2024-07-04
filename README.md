@@ -3,6 +3,10 @@
 
 
 # Era Indomitus
+Put togeather a grand timeline of all 40k books and which portion of the story they tell. 
+
+
+
 
 ## Orks
 1. Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
