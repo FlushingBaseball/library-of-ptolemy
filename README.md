@@ -1,6 +1,6 @@
 6/26/24 -> 7/7/24
 
-
+## Starting now
 
 # Era Indomitus
 Put togeather a grand timeline of all 40k books and which portion of the story they tell. 
