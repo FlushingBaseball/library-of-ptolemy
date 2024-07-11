@@ -11,7 +11,7 @@ Rate the books and the audio book readers
 # Era Indomitus
 Put togeather a grand timeline of all 40k books and which portion of the story they tell. 
 
-
+## Use an API to score the books?
 
 
 ## Orks
