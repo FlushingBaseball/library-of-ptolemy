@@ -10,7 +10,11 @@ Ultra Marines (checked)
 Terra (checked)
 50 books
 
-
+## War of Secrets 
+Dark Angels vs Chaos vs Tau 
+Primarus vs OG
+Cop out cowards ending, 
+starts rough is pretty good by the end lore wise. 
 
 
 Use the same library for the spring mechanics. 
