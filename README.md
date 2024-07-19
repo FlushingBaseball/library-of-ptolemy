@@ -7,6 +7,10 @@ three books that have orks and tau
 Ultra Marines (checked) 
 9000 books 
 
+Weigh the score options. 
+Give more weight towards 40k readers who have finished many books? 
+
+
 Terra (checked)
 50 books
 
