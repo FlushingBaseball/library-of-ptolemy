@@ -11,6 +11,10 @@ Weigh the score options.
 Give more weight towards 40k readers who have finished many books? 
 
 
+## Indomitus 
+Ultra Marines ?? company vs Chaos and then vs Necrons
+
+
 Terra (checked)
 50 books
 
@@ -20,6 +24,7 @@ Primarus vs OG
 Cop out cowards ending, 
 starts rough is pretty good by the end lore wise. 
 
+3.5/5
 
 Use the same library for the spring mechanics. 
 
