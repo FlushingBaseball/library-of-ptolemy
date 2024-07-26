@@ -1,3 +1,6 @@
+Step back and just make make it a good basic website in a new repo
+
+
 ## Step one 3 Hours
 
 
