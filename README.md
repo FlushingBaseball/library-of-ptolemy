@@ -1,3 +1,7 @@
+Onboarding process to start a new series. 
+Creator, Series, link to each thing, etc
+
+
 Step back and just make make it a good basic website in a new repo
 
 
