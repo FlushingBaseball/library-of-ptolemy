@@ -29,7 +29,7 @@ The humans are being killed out by the "bone swine" tldr orks and then necrons. 
 
 **Review**
 Lost in the warp is hard to do well, landing on the planet was good as it had a very old 40k feel untill the necrons show up and kinda kill the vibe. 
-3.5/5
+**3.5/5**
 
 # Indomitus by Gav Thorpe
 
@@ -39,21 +39,26 @@ They fight the Necrons win but lose and as they die they get a messanger out to 
 
 **Review**
 Starts pretty bad, the null zone is cool, the necrons are goofballs and im not sure if I can stand another story where they're written like this. 
-2/5
+**2/5**
+
+
+# War of Secrets by Phill Kelly
+The Dark Angels are sent to hunt some Tau, but actually the Tau and the Dark Angels are hunting a Chaos traitor Dark Angel who's infecting the Tau's ally humans.
+The oil planet, the other space marine chapters planet. Primarus vs OG, Cop out cowards ending, 
+
+**Review**
+Starts rough is pretty good by the end lore wise. 
+
+**3.5/5**
 
 
 
 
-Terra (checked)
-50 books
 
-## War of Secrets 
-Dark Angels vs Chaos vs Tau 
-Primarus vs OG
-Cop out cowards ending, 
-starts rough is pretty good by the end lore wise. 
 
-3.5/5
+
+
+
 
 Use the same library for the spring mechanics. 
 
