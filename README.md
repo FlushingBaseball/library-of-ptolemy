@@ -64,7 +64,14 @@ Starts rough is pretty good by the end lore wise.
 
 
 
+# Primogenitor by Joshua Reynolds (Fabius Bile #1)
+Meet Fabius Bile the apothacry of Fulgrims Legions who's still alive doing evil stuff. 
+He raids a Eldar Craftworld for soul stones etc.
 
+**Review**
+The entire plot about how the harlequins play in is ???
+The supporting cast is pretty good
+**3/5**
 
 
 
@@ -95,8 +102,12 @@ Put togeather a grand timeline of all 40k books and which portion of the story t
 1. Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
 "Very good book, (Minor note author hamfistedly shows his politics twice, didn't take away from the story but was done in a very jarring aside and then in a quick in world debate) 
 
-## Fabius Bile
-  Primogenitor by Guy Haley
+
+
+
+
+
+
   Genefather by Guy Haley
 
 ## Dark Imperium
