@@ -20,9 +20,28 @@ Ultra Marines (checked)
 Weigh the score options. 
 Give more weight towards 40k readers who have finished many books? 
 
+## Log
 
-## Indomitus 
-Ultra Marines ?? company vs Chaos and then vs Necrons
+# Knights of Macragge by Nick Kyme
+Ultra Marines ?? company are stuck in the warp for years, their ship is boarded muliple times and the crew goes insane. 
+They finally break out of the warp and find themselves still with a ship that's out of power and crash land on a primative human world. 
+The humans are being killed out by the "bone swine" tldr orks and then necrons. Ultra Marines win and the world was actually a colony that was under the influence of a cronomancer.
+
+**Review**
+Lost in the warp is hard to do well, landing on the planet was good as it had a very old 40k feel untill the necrons show up and kinda kill the vibe. 
+3.5/5
+
+# Indomitus by Gav Thorpe
+
+Ultra Marines ?? company, is part of the cursed part of the indomitus crusade, they engage a Chaos ship, board it but the situation is a trap and soon find themselves facing down a grand battle ship, they barley escape.
+some time latter they're called to report back to the crusade and instead the captain answers a warning call, they get stuck in the warp after running into the pairah nexus.
+They fight the Necrons win but lose and as they die they get a messanger out to G-man to warn him about the Necron Nexus. 
+
+**Review**
+Starts pretty bad, the null zone is cool, the necrons are goofballs and im not sure if I can stand another story where they're written like this. 
+2/5
+
+
 
 
 Terra (checked)
