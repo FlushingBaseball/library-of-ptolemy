@@ -22,6 +22,16 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Log
 
+## Inprogress
+# Spear of the Emperor by Aaron Dembski-Bowden
+# Harrowmaster (Renegades) by Mike Brooks
+
+
+
+
+
+
+
 # Knights of Macragge by Nick Kyme
 Ultra Marines ?? company are stuck in the warp for years, their ship is boarded muliple times and the crew goes insane. 
 They finally break out of the warp and find themselves still with a ship that's out of power and crash land on a primative human world. 
