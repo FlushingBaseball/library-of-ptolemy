@@ -25,6 +25,7 @@ Give more weight towards 40k readers who have finished many books?
 ## Inprogress
 # Spear of the Emperor by Aaron Dembski-Bowden
 # Harrowmaster (Renegades) by Mike Brooks
+#
 
 
 
@@ -83,7 +84,16 @@ Feels like old warhammer which is what I personally enjoy.
 
 
 
+## The Lion: Son Of The Forest by MIke Brooks
+A second primarch just kinda shows up, where's he been? Ahhhhh? 
+The Lion has a dude where's my legion hangover and remembers he kinda lost it last night (10,000) years ago. 
+He walks though a warp metaphor, runs into some old friends and starts putting his life back togeather. 
 
+**Review**
+Not good, what should be a crazy and pivotal moment for the setting was brought to the fans with a very below average showing. 
+It feels like there should be a second book where the actual intresting stuff happens but that never came so the Lion is back but
+if you read this book you just wouldn't care very much. 
+**1.5/5**
 
 
 # Primogenitor by Joshua Reynolds (Fabius Bile #1)
@@ -153,8 +163,7 @@ Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, p
 
 I
 
-## Dark Angels (The second primarch returns)
-The Lion: Son Of The Forest  by MIke Brooks
+
 
 
 ## Grey Wolves
