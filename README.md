@@ -61,6 +61,28 @@ Starts rough is pretty good by the end lore wise.
 
 **3.5/5**
 
+## Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
+A captured Gretchen tells the unlikley story of how Ghazghull rose to the greatest ork of the 41st Millenium 
+
+**Review**
+"Very good book, (Minor note author hamfistedly shows his politics twice, didn't take away from the story but was done in a very jarring aside and then once more in a quick in world debate) 
+**4.5/5**
+
+
+
+# Astorath Angel of Mercy by Guy Haley
+The head chaplin of the Blood Angels arrives to help the remnants of a primaris succesor chapter deal with the aftermath of the black rage. Xenos, the warp, oh my. 
+
+**Review**
+The opening act is slow and middling but the second act is fantastic. This novella shines with brilliant side characters, intresting enemies and a great setting.
+Feels like old warhammer which is what I personally enjoy. 
+**3.7/5**
+
+
+
+
+
+
 
 
 
@@ -98,9 +120,7 @@ Put togeather a grand timeline of all 40k books and which portion of the story t
 ## Use an API to score the books?
 
 
-## Orks
-1. Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
-"Very good book, (Minor note author hamfistedly shows his politics twice, didn't take away from the story but was done in a very jarring aside and then in a quick in world debate) 
+
 
 
 
@@ -131,8 +151,6 @@ The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1)
 Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, primarus surgery etc, the curse, very meta book"
 
 
-Astorath Angel of Mercy by Guy Haley
-"The opening act is slow and middling but the second act is fantastic. This novella shines with brilliant side characters, intresting enemies and a great setting.
 I
 
 ## Dark Angels (The second primarch returns)
