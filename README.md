@@ -24,6 +24,12 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Inprogress
 # Spear of the Emperor by Aaron Dembski-Bowden
+A lone Mentor and his three battle thralls cross the rift to record the fate of a region of space and to meet with it's space Marines. The region and the space marines have all suffered without any contact from the rest of the Imperium. Traitors and Chaos space marines. 
+
+## Review
+Mid, the thrall POV was different, kinda refreshing, good lore, mid to bad book. 
+
+
 # Harrowmaster (Renegades) by Mike Brooks
 #
 
