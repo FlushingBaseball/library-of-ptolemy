@@ -25,6 +25,11 @@ Give more weight towards 40k readers who have finished many books?
 ## Inprogress
 
 # Harrowmaster (Renegades) by Mike Brooks (Narrated by Theo Solomon)
+The Alpha Legion the masters of plots and subterfuge are caught off guard by something they didn't plan for (The Imperium mildly reforming)
+Who's tricking who? Who's just three layers of irony deep when they'res actually four? 
+## Review
+Alpha Legion style chaos is a nice breather from the typical heretics, the trouble is the book isn't very good. 
+
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 # Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
