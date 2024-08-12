@@ -24,18 +24,27 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Inprogress
 
-# Harrowmaster (Renegades) by Mike Brooks (Narrated by Theo Solomon)
-The Alpha Legion the masters of plots and subterfuge are caught off guard by something they didn't plan for (The Imperium mildly reforming)
-Who's tricking who? Who's just three layers of irony deep when they'res actually four? 
-## Review
-Alpha Legion style chaos is a nice breather from the typical heretics, the trouble is the book isn't very good. 
 
+
+
+# Ashes of Prospero (Space Marine Conquests Book 2)
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 # Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
 # Assassinorum Kingmaker by Robert Rath
 
 
+
+# Harrowmaster (Renegades) by Mike Brooks (Narrated by Theo Solomon)
+The Alpha Legion the masters of plots and subterfuge are caught off guard by something they didn't plan for (The Imperium mildly reforming)
+Who's tricking who? Who's just three layers of irony deep when there's actually four? 
+The Alpha Legion starts being drawn togeather as seperate warbands bow to the Harrowmasters.
+## Review
+Alpha Legion style chaos is a nice breather from the typical heretics, the trouble is the book isn't very good. 
+The overall strokes of a shattered legion starting to come around to the idea that they need to centralize 
+is great, the inquisitor(s) stuff is awful, the combat after the opening scene is awful. If you weanted Alpha Legion lore
+you got it, if you wanted a good book...
+**2/5**
 
 
 # Spear of the Emperor by Aaron Dembski-Bowden
@@ -46,7 +55,7 @@ Mid, the thrall POV was different, kinda refreshing, good lore, mid to bad book.
 Two thirds of the book is mid to bad but the last third is quite, quite good. 
 It's a very hard book to rank, but the ending seems to make some of the slog worth it.
 I find myself wondering why the whole book couldn't have been written to that level. 
-3.5/5 
+**3.5/5**
 
 
 
@@ -180,11 +189,6 @@ Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, p
 
 I
 
-
-
-
-## Grey Wolves
-Ashes of Prospero (Space Marine Conquests Book 2)
 
 
 # Terra as the age of Indomitus begins
