@@ -79,7 +79,7 @@ Starts pretty bad, the null zone is cool, the necrons are goofballs and im not s
 **2/5**
 
 
-# War of Secrets by Phill Kelly
+# War of Secrets (Space Marine Conquests Book 3) by Phill Kelly
 The Dark Angels are sent to hunt some Tau, but actually the Tau and the Dark Angels are hunting a Chaos traitor Dark Angel who's infecting the Tau's ally humans.
 The oil planet, the other space marine chapters planet. Primarus vs OG, Cop out cowards ending, 
 
