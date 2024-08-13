@@ -1,3 +1,8 @@
+Creators Panel where I can upload entry types
+
+
+
+
 Onboarding process to start a new series. 
 Creator, Series, link to each thing, etc
 
