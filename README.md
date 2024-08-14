@@ -29,8 +29,7 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Inprogress
 
-
-
+Not doing what I dont want to listen to. 
 
 # Ashes of Prospero (Space Marine Conquests Book 2)
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
