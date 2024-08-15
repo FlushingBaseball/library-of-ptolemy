@@ -1,6 +1,6 @@
 Creators Panel where I can upload entry types
 
-
+## historical price data? 
 
 
 Onboarding process to start a new series. 
