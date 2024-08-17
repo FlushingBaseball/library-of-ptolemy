@@ -35,7 +35,7 @@ Give more weight towards 40k readers who have finished many books?
 
 Not doing what I dont want to listen to. 
 
-# Ashes of Prospero (Space Marine Conquests Book 2)
+# Ashes of Prospero by Gav Thorpe (Space Marine Conquests Book 2) (Narrated by John Banks)
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 # Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
@@ -60,6 +60,8 @@ Alpha Legion style chaos is a nice breather from the typical heretics, the troub
 The overall strokes of a shattered legion starting to come around to the idea that they need to centralize 
 is great, the inquisitor(s) stuff is awful, the combat after the opening scene is awful. If you weanted Alpha Legion lore
 you got it, if you wanted a good book...
+
+Theo Solomon was an intresting choice, for the narration. 
 **2/5**
 
 
