@@ -43,6 +43,14 @@ Not doing what I dont want to listen to.
 
 
 
+# The Lords Of Silence by Chris Wraight (Narrated by John Banks)
+A Death Guard warband deals with the internal politics of their legion (Answer Abadons call? Typus vs Mortarian etc) and the events surrounding the universe immediately after the opening of the great rift. 
+
+## Review
+Good, the Death Guard are well written horrors, you can't hate them enough but you can't help but be astonished at life within the twisted legion of Nurgle. 
+Good lore, the space battle is well written but the ground battle is poor. 
+**3/5**
+
 # Harrowmaster (Renegades) by Mike Brooks (Narrated by Theo Solomon)
 The Alpha Legion the masters of plots and subterfuge are caught off guard by something they didn't plan for (The Imperium mildly reforming)
 Who's tricking who? Who's just three layers of irony deep when there's actually four? 
@@ -59,7 +67,7 @@ you got it, if you wanted a good book...
 A lone Mentor and his three battle thralls cross the rift to record the fate of a region of space and to meet with it's space Marines. The region and the space marines have all suffered without any contact from the rest of the Imperium. Traitors and Chaos space marines. 
 
 ## Review
-Mid, the thrall POV was different, kinda refreshing, good lore, mid to bad book. 
+Very good, the thrall POV was different, kinda refreshing, good lore, mid to bad book. 
 Two thirds of the book is mid to bad but the last third is quite, quite good. 
 It's a very hard book to rank, but the ending seems to make some of the slog worth it.
 I find myself wondering why the whole book couldn't have been written to that level. 
