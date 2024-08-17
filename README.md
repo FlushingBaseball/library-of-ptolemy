@@ -43,6 +43,8 @@ Not doing what I dont want to listen to.
 
 
 
+## Finished
+
 # The Lords Of Silence by Chris Wraight (Narrated by John Banks)
 A Death Guard warband deals with the internal politics of their legion (Answer Abadons call? Typus vs Mortarian etc) and the events surrounding the universe immediately after the opening of the great rift. 
 
