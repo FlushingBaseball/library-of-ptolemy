@@ -45,6 +45,8 @@ Not doing what I dont want to listen to.
 
 ## Finished
 
+# The Gate of Bones by Andy Clark (Dawn of Fire Book 2)
+
 # The Lords Of Silence by Chris Wraight (Narrated by John Banks)
 A Death Guard warband deals with the internal politics of their legion (Answer Abadons call? Typus vs Mortarian etc) and the events surrounding the universe immediately after the opening of the great rift. 
 
@@ -115,7 +117,11 @@ A captured Gretchen tells the unlikley story of how Ghazghull rose to the greate
 "Very good book, (Minor note author hamfistedly shows his politics twice, didn't take away from the story but was done in a very jarring aside and then once more in a quick in world debate) 
 **4.5/5**
 
+## Avenging Son by Guy Haley (Dawn of Fire Book 1)
 
+**Review**
+Terra is an intresting place and it's minor and side characters are always nice. 
+Historians etc
 
 # Astorath Angel of Mercy by Guy Haley
 The head chaplin of the Blood Angels arrives to help the remnants of a primaris succesor chapter deal with the aftermath of the black rage. Xenos, the warp, oh my. 
@@ -130,7 +136,7 @@ Feels like old warhammer which is what I personally enjoy.
 
 
 
-## The Lion: Son Of The Forest by MIke Brooks
+## The Lion:  Of The Forest by MIke Brooks
 A second primarch just kinda shows up, where's he been? Ahhhhh? 
 The Lion has a dude where's my legion hangover and remembers he kinda lost it last night (10,000) years ago. 
 He walks though a warp metaphor, runs into some old friends and starts putting his life back togeather. 
@@ -201,7 +207,7 @@ Dante by Guy Haley
 
 
 The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1)
-"Date calls out to all the sons of Sanguinius to make a stand against the Tyriands on their genesire's homeworld. More of this books is prep and then some will be comfortable with. The actual engagment is profound lore wise but it doesn't stand and raise to the standard you would expect. There's alot of battles in 40k and this one wasn't written very well. The ending isn't great either but there's lots of lore the final few chapters"
+"Date calls out to all the s of Sanguinius to make a stand against the Tyriands on their genesire's homeworld. More of this books is prep and then some will be comfortable with. The actual engagment is profound lore wise but it doesn't stand and raise to the standard you would expect. There's alot of battles in 40k and this one wasn't written very well. The ending isn't great either but there's lots of lore the final few chapters"
 
 
 Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, primarus surgery etc, the curse, very meta book"
