@@ -46,6 +46,16 @@ Not doing what I dont want to listen to.
 ## Finished
 
 # The Gate of Bones by Andy Clark (Dawn of Fire Book 2)
+The Indomitus Crusade's opening movement continues as a key shrine world has been taken by Word Bearers. 
+
+## Review
+Anytime there's a wider arch in which a 40k book takes place in the work feels more substantive. 
+The Word Bearers are done justice and it's not just a evil for evil's sake depiction of chaos which is always great. 
+The Knights content isn't great, but the Custodies and Guard content is slightly above average. 
+
+**3/5**
+
+
 
 # The Lords Of Silence by Chris Wraight (Narrated by John Banks)
 A Death Guard warband deals with the internal politics of their legion (Answer Abadons call? Typus vs Mortarian etc) and the events surrounding the universe immediately after the opening of the great rift. 
@@ -123,7 +133,9 @@ A captured Gretchen tells the unlikley story of how Ghazghull rose to the greate
 Terra is an intresting place and it's minor and side characters are always nice. 
 Historians etc
 
-# Astorath Angel of Mercy by Guy Haley
+
+
+## Astorath Angel of Mercy by Guy Haley
 The head chaplin of the Blood Angels arrives to help the remnants of a primaris succesor chapter deal with the aftermath of the black rage. Xenos, the warp, oh my. 
 
 **Review**
