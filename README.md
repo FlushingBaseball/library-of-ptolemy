@@ -40,6 +40,7 @@ Not doing what I dont want to listen to.
 # Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
 # Assassinorum Kingmaker by Robert Rath
+Maybe take a break from consuming this slop?
 
 
 
