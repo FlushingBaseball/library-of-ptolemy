@@ -38,7 +38,6 @@ Give more weight towards 40k readers who have finished many books?
 
 Not doing what I dont want to listen to. 
 
-# Ashes of Prospero by Gav Thorpe (Space Marine Conquests Book 2) (Narrated by John Banks)
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 # Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
@@ -48,6 +47,13 @@ Maybe take a break from consuming this slop?
 
 
 ## Finished
+
+# Ashes of Prospero by Gav Thorpe (Space Marine Conquests Book 2) (Narrated by John Banks)
+The Space Wolves are stretched thin, still recovering from Magnuses invasion of Fenris the rune lord accidently looks towards prospero and gets possessed by the spirt of a thousand suns sorcerer who claims
+that the only way he can be banished is if they travel to Prospero and free him from Magnus's maze which also has the 14th company in it111!!!
+## Review
+Not a space wolf fan but this was really good, the action took a back seat to the characters (and there wasn't much of it)
+but the thousand sons character was great idk I liked it alot (4/5) but the start is overly descriptive of the scenery. 
 
 # The Gate of Bones by Andy Clark (Dawn of Fire Book 2)
 The Indomitus Crusade's opening movement continues as a key shrine world has been taken by Word Bearers. 
