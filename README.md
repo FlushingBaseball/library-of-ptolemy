@@ -34,15 +34,26 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Log
 
-## Inprogress
-
-Not doing what I dont want to listen to. 
+## Books I have lol (Not doing what I dont want to listen to)
 
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 # Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
+# The Wolftime (Dawn of Fire 3) by Gav Thorpe
+# Throne of Light (Dawn of Fire 4) by Guy Haley
+# The Iron Kingdom (Dawn of Fire 5) by Nick Kyme
+# The Marty'rs Tomb (Dawn of Fire 6) by Marc Collins
+# The Sea of Souls by Chris Wraight
+
+
+## Inprogress (Maybe take a break from consuming this slop?)
+
 # Assassinorum Kingmaker by Robert Rath
-Maybe take a break from consuming this slop?
+
+
+
+
+
 
 
 
