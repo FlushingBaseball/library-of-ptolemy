@@ -1,7 +1,7 @@
-/8/16/2025 -> /8/28/2025 log
+/8/25/2025 -> /8/31/2025 
 
 
-starting tm 
+
 
 Explantatory site for the editions and rules
 
