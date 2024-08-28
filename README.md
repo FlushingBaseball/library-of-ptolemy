@@ -47,45 +47,59 @@ Give more weight towards 40k readers who have finished many books?
 # The Sea of Souls by Chris Wraight
 
 
-## Inprogress (Maybe take a break from consuming this slop?)
-
-# Assassinorum Kingmaker by Robert Rath
-
+# Inprogress (Maybe take a break from consuming this slop?)
+#### Assassinorum Kingmaker by Robert Rath
 
 
-# Lazarus Enmity's Edge by Gary Kloster
+
+
+
+
+
+
+
+# Finished
+
+
+#### Lazarus Enmity's Edge by Gary Kloster (Narrated by John Banks)
 The battered 4th company under comander Lazarus is sent to a respond to a beacon 
 Lazarus rightly questions the sanity of the search for the fallen when it means many dark angels die when 
 the chapter master steals his air support 
 
+##### Review
+Not very good, the Dark Angels in general are and odd sort and in this book come across as incredibly dumb.
+The best character by far is learned Temu (Seriously temu lmao) a mortal "werid book"?
+Fungas Maguffin is so bad the characters in the book take time multiple times to say wait how does this guy
+keep doing stuff we think is impossible and they just shrug their shoulders and say idk our enemy is OP? 
 
+**Performance**
+Banks does quite a few 40k books, his performance is always done well but seemingly lacks the range of voices/inflections to make the listening experience go down as smooth as it could. Overall he still remains a fine performer
+**2.9/5**
 
-
-
-
-
-## Finished
-
-# Ashes of Prospero by Gav Thorpe (Space Marine Conquests Book 2) (Narrated by John Banks)
+##### Ashes of Prospero by Gav Thorpe (Space Marine Conquests Book 2) (Narrated by John Banks)
 The Space Wolves are stretched thin, still recovering from Magnuses invasion of Fenris the rune lord accidently looks towards prospero and gets possessed by the spirt of a thousand suns sorcerer who claims
 that the only way he can be banished is if they travel to Prospero and free him from Magnus's maze which also has the 14th company in it111!!!
 ## Review
 Not a space wolf fan but this was really good, the action took a back seat to the characters (and there wasn't much of it)
 but the thousand sons character was great idk I liked it alot (4/5) but the start is overly descriptive of the scenery. 
+**3.9/5**
 
-# The Gate of Bones by Andy Clark (Dawn of Fire Book 2)
+
+
+
+##### The Gate of Bones by Andy Clark (Dawn of Fire Book 2)
 The Indomitus Crusade's opening movement continues as a key shrine world has been taken by Word Bearers. 
 
 ## Review
 Anytime there's a wider arch in which a 40k book takes place in the work feels more substantive. 
 The Word Bearers are done justice and it's not just a evil for evil's sake depiction of chaos which is always great. 
-The Knights content isn't great, but the Custodies and Guard content is slightly above average. 
+The Knights content is bad and not done well, but the Custodies and Guard content is slightly above average. 
 
-**3/5**
+**2.8/5**
 
 
 
-# The Lords Of Silence by Chris Wraight (Narrated by John Banks)
+##### The Lords Of Silence by Chris Wraight (Narrated by John Banks)
 A Death Guard warband deals with the internal politics of their legion (Answer Abadons call? Typus vs Mortarian etc) and the events surrounding the universe immediately after the opening of the great rift. 
 
 ## Review
@@ -93,7 +107,13 @@ Good, the Death Guard are well written horrors, you can't hate them enough but y
 Good lore, the space battle is well written but the ground battle is poor. 
 **3/5**
 
-# Harrowmaster (Renegades) by Mike Brooks (Narrated by Theo Solomon)
+
+
+
+
+
+
+##### Harrowmaster (Renegades) by Mike Brooks (Narrated by Theo Solomon)
 The Alpha Legion the masters of plots and subterfuge are caught off guard by something they didn't plan for (The Imperium mildly reforming)
 Who's tricking who? Who's just three layers of irony deep when there's actually four? 
 The Alpha Legion starts being drawn togeather as seperate warbands bow to the Harrowmasters.
@@ -115,7 +135,7 @@ Very good, the thrall POV was different, kinda refreshing, good lore, mid to bad
 Two thirds of the book is mid to bad but the last third is quite, quite good. 
 It's a very hard book to rank, but the ending seems to make some of the slog worth it.
 I find myself wondering why the whole book couldn't have been written to that level. 
-**3.5/5**
+**3.7/5**
 
 
 
@@ -146,7 +166,7 @@ The oil planet, the other space marine chapters planet. Primarus vs OG, Cop out 
 **Review**
 Starts rough is pretty good by the end lore wise. 
 
-**3.5/5**
+**3.3/5**
 
 ## Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
 A captured Gretchen tells the unlikley story of how Ghazghull rose to the greatest ork of the 41st Millenium 
@@ -160,6 +180,8 @@ A captured Gretchen tells the unlikley story of how Ghazghull rose to the greate
 **Review**
 Terra is an intresting place and it's minor and side characters are always nice. 
 Historians etc
+
+**3/5**
 
 
 
