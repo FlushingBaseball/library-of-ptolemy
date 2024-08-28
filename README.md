@@ -1,5 +1,7 @@
-/8/25/2025 -> /8/31/2025 
 
+
+
+Make it an app for google play
 
 
 
@@ -37,7 +39,6 @@ Give more weight towards 40k readers who have finished many books?
 ## Books I have lol (Not doing what I dont want to listen to)
 
 # Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
-# Lazarus Enmity's Edge by Gary Kloster
 # The infinite and the Divine by Robert Rath
 # The Wolftime (Dawn of Fire 3) by Gav Thorpe
 # Throne of Light (Dawn of Fire 4) by Guy Haley
@@ -50,6 +51,12 @@ Give more weight towards 40k readers who have finished many books?
 
 # Assassinorum Kingmaker by Robert Rath
 
+
+
+# Lazarus Enmity's Edge by Gary Kloster
+The battered 4th company under comander Lazarus is sent to a respond to a beacon 
+Lazarus rightly questions the sanity of the search for the fallen when it means many dark angels die when 
+the chapter master steals his air support 
 
 
 
