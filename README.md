@@ -219,6 +219,15 @@ A defacto high lord of Terra, a Custodian and a sister of silence walk into a ba
 
 
 
+#### The Carrion Throne (Vaults of Terra #1)
+An Inquistor is assigned a new protege, they hunt after something that turns out to be a dark eldar who someone brought to terra itself!
+This series was decent? 
+#### The Hollow Mountain (Vaults of Terra #2)
+###### Summary
+
+#### The Dark City (Vaults of Terra #3)
+###### Summary
+
 
 ##### Primogenitor by Joshua Reynolds (Fabius Bile #1)
 Meet Fabius Bile the apothacry of Fulgrims Legions who's still alive doing evil stuff. 
@@ -286,25 +295,6 @@ Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, p
 
 
 I
-
-
-
-# Terra as the age of Indomitus begins
-
-## Vaults of Terra
-  The Carrion Throne (#1 in series)
-  The Hollow Mountain (#2 in series)
-  The Dark City (#3 in series)
-
-
- 
-
-1. Start front end for book repos
-
-
-
-
-
 
 ## Buy, Sell, Trade Models??? 
 Post pictures of your models etc?? 
