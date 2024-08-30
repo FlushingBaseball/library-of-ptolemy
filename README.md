@@ -127,7 +127,7 @@ Theo Solomon was an intresting choice, for the narration.
 **2/5**
 
 
-# Spear of the Emperor by Aaron Dembski-Bowden
+##### Spear of the Emperor by Aaron Dembski-Bowden
 A lone Mentor and his three battle thralls cross the rift to record the fate of a region of space and to meet with it's space Marines. The region and the space marines have all suffered without any contact from the rest of the Imperium. Traitors and Chaos space marines. 
 
 ## Review
@@ -139,7 +139,7 @@ I find myself wondering why the whole book couldn't have been written to that le
 
 
 
-# Knights of Macragge by Nick Kyme
+##### Knights of Macragge by Nick Kyme
 Ultra Marines ?? company are stuck in the warp for years, their ship is boarded muliple times and the crew goes insane. 
 They finally break out of the warp and find themselves still with a ship that's out of power and crash land on a primative human world. 
 The humans are being killed out by the "bone swine" tldr orks and then necrons. Ultra Marines win and the world was actually a colony that was under the influence of a cronomancer.
@@ -148,7 +148,7 @@ The humans are being killed out by the "bone swine" tldr orks and then necrons. 
 Lost in the warp is hard to do well, landing on the planet was good as it had a very old 40k feel untill the necrons show up and kinda kill the vibe. 
 **3.5/5**
 
-# Indomitus by Gav Thorpe
+##### Indomitus by Gav Thorpe
 
 Ultra Marines ?? company, is part of the cursed part of the indomitus crusade, they engage a Chaos ship, board it but the situation is a trap and soon find themselves facing down a grand battle ship, they barley escape.
 some time latter they're called to report back to the crusade and instead the captain answers a warning call, they get stuck in the warp after running into the pairah nexus.
