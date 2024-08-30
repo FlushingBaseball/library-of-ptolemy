@@ -38,17 +38,17 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Books I have lol (Not doing what I dont want to listen to)
 
-# Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
-# The infinite and the Divine by Robert Rath
-# The Wolftime (Dawn of Fire 3) by Gav Thorpe
-# Throne of Light (Dawn of Fire 4) by Guy Haley
-# The Iron Kingdom (Dawn of Fire 5) by Nick Kyme
-# The Marty'rs Tomb (Dawn of Fire 6) by Marc Collins
-# The Sea of Souls by Chris Wraight
+###### The infinite and the Divine by Robert Rath
+###### The Wolftime (Dawn of Fire 3) by Gav Thorpe
+###### Throne of Light (Dawn of Fire 4) by Guy Haley
+###### The Iron Kingdom (Dawn of Fire 5) by Nick Kyme
+###### The Marty'rs Tomb (Dawn of Fire 6) by Marc Collins
+###### The Sea of Souls by Chris Wraight
 
 
 # Inprogress (Maybe take a break from consuming this slop?)
-#### Assassinorum Kingmaker by Robert Rath
+#### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
+#### Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 
 
 
@@ -159,7 +159,7 @@ Starts pretty bad, the null zone is cool, the necrons are goofballs and im not s
 **2/5**
 
 
-# War of Secrets (Space Marine Conquests Book 3) by Phill Kelly
+##### War of Secrets (Space Marine Conquests Book 3) by Phill Kelly
 The Dark Angels are sent to hunt some Tau, but actually the Tau and the Dark Angels are hunting a Chaos traitor Dark Angel who's infecting the Tau's ally humans.
 The oil planet, the other space marine chapters planet. Primarus vs OG, Cop out cowards ending, 
 
@@ -168,14 +168,14 @@ Starts rough is pretty good by the end lore wise.
 
 **3.3/5**
 
-## Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
+##### Ghazghkull Thraka: Prophet of the Waaagh! by Nate Crowley
 A captured Gretchen tells the unlikley story of how Ghazghull rose to the greatest ork of the 41st Millenium 
 
 **Review**
 "Very good book, (Minor note author hamfistedly shows his politics twice, didn't take away from the story but was done in a very jarring aside and then once more in a quick in world debate) 
 **4.5/5**
 
-## Avenging Son by Guy Haley (Dawn of Fire Book 1)
+##### Avenging Son by Guy Haley (Dawn of Fire Book 1)
 
 **Review**
 Terra is an intresting place and it's minor and side characters are always nice. 
@@ -185,7 +185,7 @@ Historians etc
 
 
 
-## Astorath Angel of Mercy by Guy Haley
+##### Astorath Angel of Mercy by Guy Haley
 The head chaplin of the Blood Angels arrives to help the remnants of a primaris succesor chapter deal with the aftermath of the black rage. Xenos, the warp, oh my. 
 
 **Review**
@@ -198,7 +198,7 @@ Feels like old warhammer which is what I personally enjoy.
 
 
 
-## The Lion:  Of The Forest by MIke Brooks
+##### The Lion:  Of The Forest by Mike Brooks
 A second primarch just kinda shows up, where's he been? Ahhhhh? 
 The Lion has a dude where's my legion hangover and remembers he kinda lost it last night (10,000) years ago. 
 He walks though a warp metaphor, runs into some old friends and starts putting his life back togeather. 
@@ -209,8 +209,18 @@ It feels like there should be a second book where the actual intresting stuff ha
 if you read this book you just wouldn't care very much. 
 **1.5/5**
 
+##### Watchers of the Throne by Chris Wraight (The Emperor's Legion #1)  (Narrated by Gareth Armstrong)
+A defacto high lord of Terra, a Custodian and a sister of silence walk into a bar.
+**2.5/5**
 
-# Primogenitor by Joshua Reynolds (Fabius Bile #1)
+
+
+##### The Regent’s Shadow by Chris Wraight (The Emperor's Legion #2)
+
+
+
+
+##### Primogenitor by Joshua Reynolds (Fabius Bile #1)
 Meet Fabius Bile the apothacry of Fulgrims Legions who's still alive doing evil stuff. 
 He raids a Eldar Craftworld for soul stones etc.
 
@@ -285,10 +295,6 @@ I
   The Carrion Throne (#1 in series)
   The Hollow Mountain (#2 in series)
   The Dark City (#3 in series)
-
-## Watchers of the Throne.
- The Emperor's Legion by Chris Wraight (#1 in series)
- The Regent’s Shadow by Chris Wraight (#2 in series)
 
 
  
