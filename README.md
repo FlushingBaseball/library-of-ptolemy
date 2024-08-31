@@ -1,3 +1,6 @@
+This isn't a wikipedia this is a beautiful display site
+
+
 Taking a backseat but high resolution models is going to be key.
 
 
