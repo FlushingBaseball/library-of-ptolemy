@@ -1,3 +1,9 @@
+Taking a backseat but high resolution models is going to be key.
+
+
+Step one books
+step two models
+Step Three History
 
 
 
