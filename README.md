@@ -58,6 +58,10 @@ Give more weight towards 40k readers who have finished many books?
 # Inprogress (Maybe take a break from consuming this slop?)
 #### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
 #### Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
+A Chaos Warband of Emperor's Children end up coming into possesion of a rich Imperial World who hasn't seen contact with the empire in 30+ years. 
+How can a bunch of of dopamine addicted Slannesh worshipers rule a planet? Find out. 
+##### Review
+Watching Chaos Marines destroying genestealers was a fantastic way to start the book, they may worship evil but they hate xenos even more. 
 
 
 
