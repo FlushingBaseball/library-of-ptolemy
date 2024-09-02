@@ -1,3 +1,7 @@
+Starting now, 9/1/2024 (10:51 PM lol and one truly deep)
+
+
+
 This isn't a wikipedia this is a beautiful display site
 
 
