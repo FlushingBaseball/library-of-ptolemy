@@ -1,4 +1,4 @@
-Starting now, 9/1/2024 (10:51 PM lol and one truly deep)
+Starting now, 9/1/2024 (10:51 PM lol and one truly deep, on second thought I'm going to sleep and programming tommrow)
 
 
 
