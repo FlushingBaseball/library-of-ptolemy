@@ -1,4 +1,3 @@
-Starting now, 9/1/2024 (10:51 PM lol and one truly deep, on second thought I'm going to sleep and programming tommrow)
 Messed up and let Labor day have fun (lol)
 
 
@@ -61,12 +60,20 @@ Give more weight towards 40k readers who have finished many books?
 
 # Inprogress (Maybe take a break from consuming this slop?)
 #### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
+
+
 #### Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 A Chaos Warband of Emperor's Children end up coming into possesion of a rich Imperial World who hasn't seen contact with the empire in 30+ years. 
 How can a bunch of of dopamine addicted Slannesh worshipers rule a planet? Find out. 
 ##### Review
-Watching Chaos Marines destroying genestealers was a fantastic way to start the book, they may worship evil but they hate xenos even more. 
-
+Watching Chaos Marines destroying genestealers was a fantastic way to start the book, it's a shame the book didn't manage to keep itself coherent. 
+The author has alot of ideas which are good but then rushes to cram them all into a certain amount of pages and just fumbles the book in it's entirety.
+Important very fun things happen off screen and boring brick laying scenes from POV's you're not bought into happen on screen to push the story along. 
+If this book was 100 more pages or broken into two it could of had a proper slennishy debauched attempt of reordering a society, the seeds of disquiet 
+against the adored being sown, the breakdown of the warband etc. They could of showed and not told. 
+**Performance**
+Richard Reed had a single good voice namely the gov, but on the whole it was a middling performance. 
+**3/5**
 
 
 
