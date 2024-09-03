@@ -1,7 +1,9 @@
-Messed up and let Labor day have fun (lol)
+# Thesis
+Gamesworkshop has awful websites, they don't make you want to buy anything, they don't inspire you to join the hobby, they don't do a good job of entering you into the setting...
+I can do better and I enjoy 40k so I'm going to build a better black library.
 
+1. This isn't a wikipedia this is will be a beautiful display site where people will want to spend time. 
 
-This isn't a wikipedia this is a beautiful display site
 
 
 Taking a backseat but high resolution models is going to be key.
@@ -11,7 +13,9 @@ Step one books
 step two models
 Step Three History
 
+Use the same library for the spring mechanics. 
 
+Flip card. 
 
 Make it an app for google play
 
@@ -51,7 +55,6 @@ Give more weight towards 40k readers who have finished many books?
 ## Books I have lol (Not doing what I dont want to listen to)
 
 ###### The infinite and the Divine by Robert Rath
-###### The Wolftime (Dawn of Fire 3) by Gav Thorpe
 ###### Throne of Light (Dawn of Fire 4) by Guy Haley
 ###### The Iron Kingdom (Dawn of Fire 5) by Nick Kyme
 ###### The Marty'rs Tomb (Dawn of Fire 6) by Marc Collins
@@ -59,6 +62,7 @@ Give more weight towards 40k readers who have finished many books?
 
 
 # Inprogress (Maybe take a break from consuming this slop?)
+###### The Wolftime (Dawn of Fire 3) by Gav Thorpe (Narrated by John Banks)
 #### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
 
 
@@ -267,18 +271,12 @@ The supporting cast is pretty good
 
 
 
-Use the same library for the spring mechanics. 
-
-Flip card. 
 
 
-7/8/24
 
 
 Opening Screen? 
 
-
-## Starting now
 
 Rate the books and the audio book readers
 
@@ -365,7 +363,6 @@ Gothic for the imperium
 purple etc for fulgirm / slannesh etc
 chapter colors
 
-## A better black library
 
 
 ## Author profiles and ratings
