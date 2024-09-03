@@ -62,6 +62,15 @@ Give more weight towards 40k readers who have finished many books?
 #### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
 
 
+
+
+
+
+
+
+
+# Finished
+
 #### Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 A Chaos Warband of Emperor's Children end up coming into possesion of a rich Imperial World who hasn't seen contact with the empire in 30+ years. 
 How can a bunch of of dopamine addicted Slannesh worshipers rule a planet? Find out. 
@@ -75,14 +84,6 @@ against the adored being sown, the breakdown of the warband etc. They could of s
 Richard Reed had a single good voice namely the gov, but on the whole it was a middling performance. 
 **3/5**
 
-
-
-
-
-
-
-
-# Finished
 
 
 #### Lazarus Enmity's Edge by Gary Kloster (Narrated by John Banks)
