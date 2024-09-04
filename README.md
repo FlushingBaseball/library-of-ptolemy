@@ -4,7 +4,9 @@ I can do better and I enjoy 40k so I'm going to build a better black library.
 
 1. This isn't a wikipedia this is will be a beautiful display site where people will want to spend time. 
 
-
+## Features
+1. Overall animated paralax setting timeline (defaults from death of the emperor onwards)
+2. 
 
 Taking a backseat but high resolution models is going to be key.
 
@@ -347,7 +349,7 @@ Return of G man etc
 React, Spring and idk Next JS?
 
 
-## Overall timeline (defaults from death of the emperor onwards)
+
 
 
 ## Book Summary's 
