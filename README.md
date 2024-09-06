@@ -1,4 +1,5 @@
 I'm unemployed as of 9/5/2024
+I wasted 9/5/2024 in a haze
 
 
 
