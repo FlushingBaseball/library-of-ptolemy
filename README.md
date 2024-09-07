@@ -70,7 +70,13 @@ Give more weight towards 40k readers who have finished many books?
 
 # Inprogress (Maybe take a break from consuming this slop?)
 ###### The Wolftime (Dawn of Fire 3) by Gav Thorpe (Narrated by John Banks)
+
+
 #### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
+##### Review
+Fantastic, this is the book that proves 40k is a great setting even without the Astartes
+**Performance**
+Gareth Armstrong gave an amazing reading of this book, he dedicated himself to finding the characters and breathed life into the text
 
 
 
