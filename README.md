@@ -72,12 +72,6 @@ Give more weight towards 40k readers who have finished many books?
 ###### The Wolftime (Dawn of Fire 3) by Gav Thorpe (Narrated by John Banks)
 
 
-#### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
-##### Review
-Fantastic, this is the book that proves 40k is a great setting even without the Astartes
-**Performance**
-Gareth Armstrong gave an amazing reading of this book, he dedicated himself to finding the characters and breathed life into the text
-
 
 
 
@@ -87,6 +81,17 @@ Gareth Armstrong gave an amazing reading of this book, he dedicated himself to f
 
 
 # Finished
+
+#### Assassinorum Kingmaker by Robert Rath (Narrated by Gareth Armstrong)
+A critical mission requires the best operatives the assassinorm temple can provide. 
+A Knight planet looks like it has gone rouge so a team is dispatched to do what is necessary
+##### Review
+Fantastic, this is the book that proves 40k is a great setting even without the Astartes when done right. 
+**Performance**
+Gareth Armstrong gave an amazing reading of this book, he dedicated himself to finding the characters and breathed life into the text
+**4.5/5**
+
+
 
 #### Lord of Excess (Renegades) by Rich McCormick (Narrated by Richard Reed)
 A Chaos Warband of Emperor's Children end up coming into possesion of a rich Imperial World who hasn't seen contact with the empire in 30+ years. 
