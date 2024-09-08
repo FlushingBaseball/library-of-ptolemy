@@ -311,28 +311,25 @@ Put togeather a grand timeline of all 40k books and which portion of the story t
 
 
 
+##### Genefather by Guy Haley
 
-  Genefather by Guy Haley
-
-## Dark Imperium
+##### Dark Imperium by Guy Haley
 Dark Imperium by Guy Haley (#1 in series) (Two versions, the original and a timeline retcon) 
 
 
 
-## Belisarus Cawl
-Belisarius Cawl: The Great Work by Guy Haley
+##### Belisarius Cawl: The Great Work by Guy Haley
 
-## Blood Angels
-Dante by Guy Haley
-"Not Era Indomitus per say but one of the best modern 40k books." 
+##### Dante by Guy Haley
 
 
 
-The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1)
+##### The Devastation of Baal by Guy Haley also (Space Marine Conquests Book 1)
 "Date calls out to all the s of Sanguinius to make a stand against the Tyriands on their genesire's homeworld. More of this books is prep and then some will be comfortable with. The actual engagment is profound lore wise but it doesn't stand and raise to the standard you would expect. There's alot of battles in 40k and this one wasn't written very well. The ending isn't great either but there's lots of lore the final few chapters"
 
 
-Darkness in the Blood by Guy Haley "Lots of lore and overall plot development, primarus surgery etc, the curse, very meta book"
+##### Darkness in the Blood by Guy Haley
+"Lots of lore and overall plot development, primarus surgery etc, the curse, very meta book"
 
 
 I
