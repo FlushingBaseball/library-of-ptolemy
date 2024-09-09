@@ -62,19 +62,11 @@ Give more weight towards 40k readers who have finished many books?
 
 ## Books I have lol (Not doing what I dont want to listen to)
 
-###### The infinite and the Divine by Robert Rath
-###### Throne of Light (Dawn of Fire 4) by Guy Haley
-###### The Iron Kingdom (Dawn of Fire 5) by Nick Kyme
-###### The Marty'rs Tomb (Dawn of Fire 6) by Marc Collins
-###### The Sea of Souls by Chris Wraight
+
 
 
 # Inprogress (Maybe take a break from consuming this slop?)
-###### The Wolftime (Dawn of Fire 3) by Gav Thorpe (Narrated by John Banks)
-
-
-
-
+Nothing
 
 
 
@@ -384,3 +376,17 @@ chapter colors
 ## Author profiles and ratings
 
 ## GW staff and ratings 
+
+
+
+# Not being read rn
+###### The Wolftime (Dawn of Fire 3) by Gav Thorpe (Narrated by John Banks)
+Such a bad book that it along with the the infinite and the stupid are in the perma trash pile. 
+In fact it started so bad that I will now skip the rest of the Dawn of Fire series. 
+###### The infinite and the Divine by Robert Rath
+###### Throne of Light (Dawn of Fire 4) by Guy Haley
+###### The Iron Kingdom (Dawn of Fire 5) by Nick Kyme
+###### The Marty'rs Tomb (Dawn of Fire 6) by Marc Collins
+###### The Sea of Souls by Chris Wraight
+
+
