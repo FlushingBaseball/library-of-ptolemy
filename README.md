@@ -61,7 +61,9 @@ Give more weight towards 40k readers who have finished many books?
 ## Log
 
 ## Books I have lol (Not doing what I dont want to listen to)
-
+The Emperor's Gift by Aaron Demski-Bowden narrated by Christopher Kent
+Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard Reed
+Priests of Mars by Graham McNeil narrated by Joe Jameson
 
 
 
