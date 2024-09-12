@@ -1,5 +1,5 @@
 Im so very stupid
-
+wtf am I doing
 
 I'm unemployed as of 9/5/2024
 I wasted 9/5/2024 9/6 and 9/7 in a haze
