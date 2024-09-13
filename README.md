@@ -1,6 +1,6 @@
 
 I'm unemployed as of 9/5/2024
-I wasted all the way up to 9/12/2024
+I wasted all the way up to 9/13/2024
 
 
 
@@ -61,8 +61,7 @@ Give more weight towards 40k readers who have finished many books?
 ## Log
 
 ## Books I have lol (Not doing what I dont want to listen to)
-##### The Emperor's Gift by Aaron Demski-Bowden narrated by Christopher Kent
-one of the worst books so far, bismal and the narrator sucks
+
 
 
 Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard Reed
@@ -71,8 +70,8 @@ Priests of Mars by Graham McNeil narrated by Joe Jameson
 
 
 # Inprogress (Maybe take a break from consuming this slop?)
-Nothing
-
+##### The Emperor's Gift by Aaron Demski-Bowden narrated by Christopher Kent
+one of the worst books so far, bismal and the narrator sucks
 
 
 
