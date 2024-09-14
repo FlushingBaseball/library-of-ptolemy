@@ -64,13 +64,13 @@ Give more weight towards 40k readers who have finished many books?
 
 
 Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard Reed
-Priests of Mars by Graham McNeil narrated by Joe Jameson
 
 
 
 # Inprogress (Maybe take a break from consuming this slop?)
 ##### The Emperor's Gift by Aaron Demski-Bowden narrated by Christopher Kent
 one of the worst books so far, bismal and the narrator sucks
+##### Priests of Mars by Graham McNeil narrated by Joe Jameson
 
 
 
