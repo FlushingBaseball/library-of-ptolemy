@@ -122,7 +122,7 @@ Banks does quite a few 40k books, his performance is always done well but seemin
 ##### Ashes of Prospero by Gav Thorpe (Space Marine Conquests Book 2) (Narrated by John Banks)
 The Space Wolves are stretched thin, still recovering from Magnuses invasion of Fenris the rune lord accidently looks towards prospero and gets possessed by the spirt of a thousand suns sorcerer who claims
 that the only way he can be banished is if they travel to Prospero and free him from Magnus's maze which also has the 14th company in it111!!!
-## Review
+##### Review
 Not a space wolf fan but this was really good, the action took a back seat to the characters (and there wasn't much of it)
 but the thousand sons character was great idk I liked it alot (4/5) but the start is overly descriptive of the scenery. 
 **3.9/5**
@@ -133,7 +133,7 @@ but the thousand sons character was great idk I liked it alot (4/5) but the star
 ##### The Gate of Bones by Andy Clark (Dawn of Fire Book 2)
 The Indomitus Crusade's opening movement continues as a key shrine world has been taken by Word Bearers. 
 
-## Review
+##### Review
 Anytime there's a wider arch in which a 40k book takes place in the work feels more substantive. 
 The Word Bearers are done justice and it's not just a evil for evil's sake depiction of chaos which is always great. 
 The Knights content is bad and not done well, but the Custodies and Guard content is slightly above average. 
@@ -262,17 +262,17 @@ A defacto high lord of Terra, a Custodian and a sister of silence walk into a ba
 
 
 
-#### The Carrion Throne (Vaults of Terra #1)
+#### The Carrion Throne by Chris Wraight (Vaults of Terra #1) Narrated by John Banks
 An Inquistor is assigned a new protege, they hunt after something that turns out to be a dark eldar who someone brought to terra itself!
 This series was decent? 
-#### The Hollow Mountain (Vaults of Terra #2)
+#### The Hollow Mountain by Chris Wraight (Vaults of Terra #2)
 ###### Summary
 
-#### The Dark City (Vaults of Terra #3)
+#### The Dark City by Chris Wraight (Vaults of Terra #3)
 ###### Summary
 
 
-##### Primogenitor by Joshua Reynolds (Fabius Bile #1)
+##### Primogenitor by Joshua Reynolds (Fabius Bile #1) Narrated by John Banks
 Meet Fabius Bile the apothacry of Fulgrims Legions who's still alive doing evil stuff. 
 He raids a Eldar Craftworld for soul stones etc.
 
