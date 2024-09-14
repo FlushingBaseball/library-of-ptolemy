@@ -1,6 +1,5 @@
-
 I'm unemployed as of 9/5/2024
-I wasted all the way up to 9/13/2024
+I wasted all the way up to 9/15/2024
 
 
 
