@@ -1,7 +1,7 @@
 I'm unemployed as of 9/5/2024
 I wasted all the way up to 9/15/2024
 
-Starting 9/16/2025
+Starting 9/16/2025 (lmao I just suck)
 
 
 
