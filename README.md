@@ -1,8 +1,8 @@
 I'm unemployed as of 9/5/2024
 I wasted all the way up to 9/15/2024
 
-The wedding wasn't bad, I dislike my fam and the way they act. 
-Im sick of them being the way they are. 
+Starting 9/16/2025
+
 
 
 
