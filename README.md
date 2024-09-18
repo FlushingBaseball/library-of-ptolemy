@@ -73,6 +73,9 @@ Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard 
 # Inprogress (Maybe take a break from consuming this slop?)
 ##### The Emperor's Gift by Aaron Demski-Bowden narrated by Christopher Kent
 one of the worst books so far, bismal and the narrator sucks
+The first thirs is very very bad in every regard, it improves from there but I can't honestly recommend anything where a third of your time will be suffering
+
+
 ##### Priests of Mars by Graham McNeil narrated by Joe Jameson
 
 
