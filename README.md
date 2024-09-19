@@ -66,9 +66,13 @@ Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard 
 
 # Inprogress (Maybe take a break from consuming this slop?)
 ##### The Emperor's Gift by Aaron Demski-Bowden narrated by Christopher Kent
-one of the worst books so far, bismal and the narrator sucks
-The first thirs is very very bad in every regard, it improves from there but I can't honestly recommend anything where a third of your time will be suffering
-
+One of the worst 40k books I've ran into so far. The first 40% of the book is bad dialogue, bad action scenes and poor character development. 
+The last sixty percent is a good concept executed poorly. Two famous chapters facing off, the first war for Armageddon and a final battle should in theory
+be captivating set pieces that might make it worth reading but instead it's done in a shockingly bland and uninspired manner. 
+**Performance**
+This is my first experience with Christopher Kents narration so hopefully it's catching him on the worst performance of his career.
+I understand the POV from which he is narrating is a character who lacks depth of emotion and comments on this, however there's barley any 
+effort put into the various grey knights and the inquisatorial agents, he does fine with the space wolves but thats not much of a challenge. 
 
 ##### Priests of Mars by Graham McNeil narrated by Joe Jameson
 
