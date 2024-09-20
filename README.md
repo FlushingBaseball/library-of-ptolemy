@@ -59,7 +59,11 @@ Give more weight towards 40k readers who have finished many books?
 ## Books I have lol (Not doing what I dont want to listen to)
 
 
-
+Siege of Vraks
+The Fall of Cadia
+The Infinite and the Divine by Robert Rath
+Blood of Sanguinius by Darius Hinks [Mephiston Book 1]
+The Revenant Crusade by Darius Hinks [Mephiston Book 2]
 Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard Reed
 Priests of Mars by Graham McNeil narrated by Joe Jameson
 Deathworlder by Victoria Hayward narrated by Gabrielle Nellis-Pain
