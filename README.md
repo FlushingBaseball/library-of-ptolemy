@@ -64,8 +64,6 @@ Throne of Light [Dawn of Fire book 4]
 The Iron Kingdom [Dawn of Fire book 5]
 The Martyr's Tomb [Dawn of Fire book 6]
 Sea of Souls [Dawn of Fire book 7]
-
-
 Plague War [Dark Imperium Book 2]
 Siege of Vraks
 The Fall of Cadia
@@ -74,6 +72,8 @@ Blood of Sanguinius by Darius Hinks [Mephiston Book 1]
 The Revenant Crusade by Darius Hinks [Mephiston Book 2]
 Apocalypse [Space Marine Conquests book 5] by Josh Reynolds narrated by Richard Reed
 Priests of Mars by Graham McNeil narrated by Joe Jameson
+Lords of Mars
+gods of Mars
 Deathworlder by Victoria Hayward narrated by Gabrielle Nellis-Pain
 
 
