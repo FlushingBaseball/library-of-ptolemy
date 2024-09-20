@@ -59,6 +59,14 @@ Give more weight towards 40k readers who have finished many books?
 ## Books I have lol (Not doing what I dont want to listen to)
 
 
+The Wolftime [Dawn of Fire book 3]
+Throne of Light [Dawn of Fire book 4]
+The Iron Kingdom [Dawn of Fire book 5]
+The Martyr's Tomb [Dawn of Fire book 6]
+Sea of Souls [Dawn of Fire book 7]
+
+
+Plague War [Dark Imperium Book 2]
 Siege of Vraks
 The Fall of Cadia
 The Infinite and the Divine by Robert Rath
