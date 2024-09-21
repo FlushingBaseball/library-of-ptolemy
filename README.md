@@ -1,5 +1,8 @@
 Im going to stop punishing myself with the past, and I will live in the present
 
+
+need to focus on revenue
+
 # Thesis
 Gamesworkshop has awful websites, they don't make you want to buy anything, they don't inspire you to join the hobby, they don't do a good job of entering you into the setting...
 I can do better and I enjoy 40k so I'm going to build a better black library.
