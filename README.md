@@ -1,6 +1,3 @@
-## bullshit
-Im going to work tonight I just don't want to do this yet
-
 # Thesis
 Gamesworkshop has awful websites, they don't make you want to buy anything, they don't inspire you to join the hobby, they don't do a good job of entering you into the setting...
 I can do better and I enjoy 40k so I'm going to build a better black library.
